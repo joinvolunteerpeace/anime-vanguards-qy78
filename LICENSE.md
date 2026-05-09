@@ -1,4 +1,4 @@
-
+anime vanguards Script smart is the best anime vanguards Script, featuring anti-ban and auto-sell. Safe and powerful for all your needs.
 
 
 
